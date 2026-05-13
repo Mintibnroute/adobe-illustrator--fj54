@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Illustrator for macOS preset with Adobe Illustrator for macOS updated Preset: AI-assisted design & plugin support. Featuring AI-assisted design and plugin
 
 
 
